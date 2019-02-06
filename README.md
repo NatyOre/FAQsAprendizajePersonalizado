@@ -1,2 +1,0 @@
-# FAQsAprendizajePersonalizado
-FAQs Aprendizaje Personalizado
